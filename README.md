@@ -1,10 +1,10 @@
 # Humans
 
-Continually reduced to knowing without feeling
-inorganic sublimity, blurred edges and hard corners
-sharp tears through the fabric of interwoven hearts
-Californian fields
-required for entry,
+Continually reduced to knowing without feeling  
+inorganic sublimity, blurred edges and hard corners  
+sharp tears through the fabric of interwoven hearts  
+Californian fields  
+required for entry,  
 representation diss-emanated by proxy,
 and no harvest but the lament of cracked hands
 broken backs, torn families, and a reality 
